@@ -4,8 +4,4 @@
 
 🌟 im a really shy person so whisp if u wanna talk or wtv, i love making friends :3
 
-🌟 i luvvv cats, i hav 2 cats and sometimes i leave my pc open and they love to sleep on my keyboard so if i do random movements or wtv, it's them. 😺
-
-🌟 u can use any pronouns idrc 
-
 🌟 im not that active on pt, I'll probably get on for a couple days and disappear, then boom im back again 😺 feel free to add my socials if u wanna interact w me 
