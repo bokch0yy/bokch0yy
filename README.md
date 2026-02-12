@@ -1,6 +1,8 @@
 🌟 hi my names bok or kise :D
 
-🌟 i don't have a dni list, just don't be weird and we'll be cool
+🌟 i don't have a dni list, just don't be weird and we'll be cool :p
+
+🌟 i identify as a threat, my pronouns are try/me 
 
 🌟 im a really shy person so whisp if u wanna talk or wtv, i love making friends :3
 
